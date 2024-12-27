@@ -1,1 +1,1 @@
-wghijwghouwikgj;
+its a triangel
